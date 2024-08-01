@@ -1,2 +1,4 @@
 # zionpenwaycopywritingenterprise.com
 
+We are a Company that offers copywriting services and also sales/marketing technology services. For our sales/marketing technology services, we can help businesses in the products or services industry increase their website conversion rate using a data-driven SEO strategy. 
+Let us captivate your audience and drive conversions with our proven writing strategies and expert digital marketing strategies. We make your brand stand out from the crowd and make a meaningful impact in the digital landscape. Our services are programmed to create for you, a powerful online presence that sets you apart from the competition but puts you at the top of the game!
