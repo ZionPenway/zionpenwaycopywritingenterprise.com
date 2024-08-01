@@ -1,2 +1,2 @@
-# zionpenwaycopywritingenterprise.io
+# zionpenwaycopywritingenterprise.com
 Our Services:
